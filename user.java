@@ -1,4 +1,0 @@
-Peddi
-Raji
-Jithesh
-rishva
